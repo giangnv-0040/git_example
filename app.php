@@ -1,1 +1,1 @@
-Nguyen Dinh Thanh
+Thanh
